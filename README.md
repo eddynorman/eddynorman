@@ -20,6 +20,7 @@ I enjoy building systems that improve efficiency and simplify business processes
 
 ### 📫 Contact
 Email: edmond.norman.zuberi@gmail.com
+Phone: +255 758 105 094
 LinkedIn: (Add after we fix it)
 
 
